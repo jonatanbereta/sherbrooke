@@ -1,1 +1,1 @@
-# sherbrooke
+# Université Sher
